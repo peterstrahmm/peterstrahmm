@@ -12,3 +12,7 @@
 
 
 
+
+　 　　　 　　 　　　　　 　　　 　　 　　　　 　　　　hi trio  hi mandy hi kayla
+
+<img width="1219" height="659" alt="image" src="https://github.com/user-attachments/assets/abdb5787-3910-4103-9e18-73803a29b1de" />
