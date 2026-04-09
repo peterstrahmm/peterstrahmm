@@ -2,7 +2,7 @@
                
                
                
-　　　 　　 　　　 　　 　　　 　 　　　　᧔ 　　   ᵈᵇˡˢ ⁱʷᶜ  , ,  ᶠᵃⁿᵈᵒᵐ ⁱⁿᵗ  .  ᶜ⁺ʰ ᶠʳᵉᵉˡʸ ᵘⁿˡᵉˢˢ ˢᵗᵃᵗᵉᵈ ᵒᵗʰᵉʳʷⁱˢᵉ ᵇʸ ᵃ ᵈⁿⁱ 　　 ᧓
+　　　 　　 　　　 　　 　　　 　 　　᧔ 　　   plural  , ,  fandomint  .  c*h freely unlesss stated otherwise 　　 ᧓
 
 　　　 　　 　　　 　　 　　　　 　　 　　　 　 　   　 [strawpage](https://iknowwhoyouare.straw.page/)　![tumblr_689ab61ba2f5ed28ed330439fe81fc76_8254f6a1_75](https://github.com/user-attachments/assets/75d2b507-4aef-4508-ad09-e9c93770d635)     　[atabook](https://riddledbatz.atabook.org/)
 
