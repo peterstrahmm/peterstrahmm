@@ -5,7 +5,7 @@
                
                
                
-<p align="center">$\color{#C7C2CB}{\textsf{ 　　   intrj   ／   fndm int   ／   c*h    　　 }}$</p>
+<p align="center">$\color{#C7C2CB}{\textsf{ 　　   intrj   ／   fndm iwc   ／   c*h    　　 }}$</p>
 
 
 　　　 　　 　　　  　　　 　 　 　 　 　 　　 　 　 　 　　　[𝟏](https://peterstrahmm.straw.page/)　
