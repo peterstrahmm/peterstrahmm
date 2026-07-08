@@ -8,7 +8,7 @@
 <p align="center">$\color{#C7C2CB}{\textsf{ 　　   intrj   ／   fndm int   ／   c*h    　　 }}$</p>
 
 
-　　　 　　 　　　  　　　 　 　 　 　 　 　　 　 　 　 　　  　　[𝟏](https://iknowwhoyouare.straw.page/)　
+　　　 　　 　　　  　　　 　 　 　 　 　 　　 　 　 　 　　　[𝟏](https://iknowwhoyouare.straw.page/)　
 　[𝟐](https://riddledbatz.atabook.org/)　　[𝟑](https://rentry.co/riddledbatz) 
 
 
