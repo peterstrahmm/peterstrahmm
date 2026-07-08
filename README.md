@@ -8,9 +8,8 @@
 <p align="center">$\color{#C7C2CB}{\textsf{ 　　   intrj   ／   fndm int   ／   c*h    　　 }}$</p>
 
 
-　　　 　　 　　　  　　　 　 　 　 　 　 　　 　 　 　　　[𝟏](https://iknowwhoyouare.straw.page/)　<img src="https://github.com/user-attachments/assets/3c473e27-43eb-4e6c-b492-f1528229d868" width="20" alt="Logo">　
-　[𝟐](https://riddledbatz.atabook.org/)　<img width="20" height="20" alt="tumblr_a505cff0164d2f7e5c555040fd0f29a4_1e81d174_75" src="https://github.com/user-attachments/assets/9b47aafd-8e89-42c7-ba75-213e34bede19" />　
-　[𝟑](https://rentry.co/riddledbatz) 
+　　　 　　 　　　  　　　 　 　 　 　 　 　　 　 　 　 　　  　　[𝟏](https://iknowwhoyouare.straw.page/)　
+　[𝟐](https://riddledbatz.atabook.org/)　　[𝟑](https://rentry.co/riddledbatz) 
 
 
                                   
