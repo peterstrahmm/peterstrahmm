@@ -1,14 +1,16 @@
 <p align="center">
-<img width="400" height="300" alt="Untitled702_20260527140551" src="https://github.com/user-attachments/assets/028a967d-ada4-494b-95ec-966de49d4aa8" />
+<img src="https://github.com/user-attachments/assets/e2fc4c6a-8b4d-402e-90f5-01243caebbfa" width="200" alt="Logo">
 </p>
  　 　 　 　
                
                
                
-<p align="center">$\color{#30a69c}{\textsf{ 　　   plural .   fandomint  .  c*h freely unlesss stated otherwise 　　 }}$</p>
+<p align="center">$\color{#C7C2CB}{\textsf{ 　　   intrj   ／   fndm int   ／   c*h    　　 }}$</p>
 
-　　　 　　 　　　 　　 　　　　 　　 　　　　　[strawpage](https://iknowwhoyouare.straw.page/)　![tumblr_689ab61ba2f5ed28ed330439fe81fc76_8254f6a1_75](https://github.com/user-attachments/assets/75d2b507-4aef-4508-ad09-e9c93770d635)　
-　[atabook](https://riddledbatz.atabook.org/)　<img width="20" height="20" alt="tumblr_a505cff0164d2f7e5c555040fd0f29a4_1e81d174_75" src="https://github.com/user-attachments/assets/9b47aafd-8e89-42c7-ba75-213e34bede19" />　[rentry](https://rentry.co/riddledbatz) 
+
+　　　 　　 　　　  　　　 　 　 　 　 　 　　 　 　 　　　[𝟏](https://iknowwhoyouare.straw.page/)　<img src="https://github.com/user-attachments/assets/3c473e27-43eb-4e6c-b492-f1528229d868" width="20" alt="Logo">　
+　[𝟐](https://riddledbatz.atabook.org/)　<img width="20" height="20" alt="tumblr_a505cff0164d2f7e5c555040fd0f29a4_1e81d174_75" src="https://github.com/user-attachments/assets/9b47aafd-8e89-42c7-ba75-213e34bede19" />　
+　[𝟑](https://rentry.co/riddledbatz) 
 
 
                                   
@@ -21,3 +23,9 @@
 　 　　　 　　 　　　　　 　　　 　　 　　　　 　　　　hi trio  hi mandy hi kayla
 
 <p align="center"><img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/abdb5787-3910-4103-9e18-73803a29b1de" /></p>
+
+
+
+
+
+
